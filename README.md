@@ -1,1 +1,1 @@
-# cybernetics
+# Cybernetics
